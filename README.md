@@ -221,3 +221,167 @@ going to = gonna
 > I'm gonna. (am gana)
 >
 > Yo estoy yendo a.
+
+> I'm going to **take a shower**. (teik a sháuer)
+>
+> I'm **gonna** take a shower. (gana)
+>
+> Yo voy a **tomar una ducha / bañarme**.
+
+> I'm going to **buy that**. (bai dat)
+>
+> I'm **gonna** buy that. (gana)
+>
+> Yo voy a **comprar eso**.
+
+> I'm going to **play the piano**. (plei de pianou)
+>
+> I'm **gonna** play the piano. (gana)
+>
+> Yo voy a tocar el piano.
+
+> I'm going to **close the window**. (clous de uíndou)
+>
+> I'm **gonna** close the window.
+>
+> Yo voy a cerrar la ventana.
+
+> I'm going to **stay home**. (stei jóum)
+>
+> I'm **gonna** stay home.
+>
+> Yo voy a quedarme en casa.
+
+> I'm going to **watch TV**. (uach tiví)
+>
+> I'm gonna watch TV.
+>
+> Yo voy a ver tv.
+
+> I'm going to **sing a song**. (sin a son)
+>
+> I'm gonna sing a song.
+>
+> Yo voy a cantar una canción.
+
+> I'm going to **write it down**. (ráiret daun)
+>
+> I'm gonna write it down.
+>
+> Yo voy a anotarlo.
+
+> I'm goint to sit down. (sit daun)
+>
+> I'm gonna sit down.
+>
+> Yo voy a sentarme.
+
+> I'm going to call you later. (kol iu léirer)
+>
+> I'm gonna call you later.
+>
+> Yo voy a llamarte más tarde.
+
+### Lesson 3.2 - Yo **No** Estoy Yendo a
+
+I'm not going to. (am nat goin tu) = I'm not gonna. (am nat gana)
+
+> I'm not going to stay home.
+>
+> I'm not gonna stay home.
+
+> I'm not going to take a shower.
+>
+> I'm not gonna take a shower.
+
+> I'm not going to watch TV.
+>
+> I'm not gonna watch TV.
+
+### Attention! (aténshon)
+
+> Si estamos **yendo a un Lugar**, solo se usa la primera forma.
+> I'm going to...
+> I'm going to **Europe**. (iúrap)
+
+> El gonna se puede usar cuando le sigue un verbo.
+
+### Lesson 4.1 - DO
+
+El do siempre está dentrás de los verbos.
+
+#### Oración
+
+> **Positiva**: Él canta bien.
+
+> **Negativa**: Él no canta bien.
+
+> **Pregunta**: ¿Él canta bien?
+
+#### Presente
+
+> Positiva: You have a dog.
+
+> **Negativa**: You **do**n't have a dog.
+
+> **Pregunta**: **Do** you have a dog?
+
+#### Pasado
+
+> Positiva: You had a dog.
+
+> **Negativa**: You **did**n't have a dog.
+
+> **Pregunta**: **Did** you have a dog?
+
+#### Imperativo
+
+Cuando mangoneamos a la gente
+
+**Do**n't touch that!
+
+#### Entonces, el DO se usa en:
+
+> **Presente**: negaciones, preguntas.
+
+> **Pasado**: negaciones, preguntas.
+
+> **Imperativo**: negaciones.
+
+#### El DO también puede ser un verbo, significa HACER
+
+> **Do** you always do it?
+
+> You **did**n't always do it.
+
+> **Do**n't do it!
+
+#### Verbos que No usan el DO
+
+> **be**: ser o estar
+
+> **can**: poder
+
+> **must**: deber (de obligación)
+
+> **may**: poder
+
+#### Ejemplos:
+
+> I'**m** not dumb.
+
+> I **can**'t open this can. (can: poder, lata de conservas)
+
+> You **must** not drive like that.
+
+> **May** I come in?
+
+#### El DO también es un intensificador de la acción
+
+Si lo vemos en una oraciónm positiva, significa que le está dando más dramatismo a la oración.
+
+**Presente**
+
+> I **do** love tacos!
+
+> I did eat my breakfast!
